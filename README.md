@@ -2,5 +2,4 @@
 just a repository
 
 Hello world!
-I'm a cold killer!
-no love,no sympathy.
+now I bacame a lovely boy!
